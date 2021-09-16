@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @NOTDAWIID
+- 👀 I’m interested in playing games
+- 🌱 I’m currently learning everything xD
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me: discord NOTDAWIID#2820
